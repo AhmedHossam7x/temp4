@@ -1,0 +1,8 @@
+![127 0 0 1_5500_courses html](https://github.com/user-attachments/assets/40fbb4cd-94b1-4b1b-8ee6-201ac3dd1bcf)![127 0 0 1_5500_courses html](https://github.com/user-attachments/assets/cd1df25f-cecd-4ca2-9044-3f29baba3979)
+![127 0 0 1_5500_files html](https://github.com/user-attachments/assets/d3e0e6f7-b0cd-466e-8679-9e73a5010e03)
+![127 0 0 1_5500_friends html](https://github.com/user-attachments/assets/d7e07f09-946b-49f2-b86d-99444157d29d)
+![127 0 0 1_5500_index html](https://github.com/user-attachments/assets/8162504c-4f80-4025-bf7f-420ee93e8241)
+![127 0 0 1_5500_plans html](https://github.com/user-attachments/assets/55ffe1ec-32e8-47a4-be53-217db594cf3e)
+![127 0 0 1_5500_profile html](https://github.com/user-attachments/assets/32c9dcff-8ff5-4946-8bbf-0eb9c5a3bfd2)
+![127 0 0 1_5500_projects html](https://github.com/user-attachments/assets/793dadb1-c5ac-42a9-ad63-7baef5786f27)
+![127 0 0 1_5500_settings html](https://github.com/user-attachments/assets/4f56503e-9013-4a48-8c4e-7e9b498511cc)
